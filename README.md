@@ -1,0 +1,1 @@
+# Nie-szukaj-mi-o-ci-jej-nie-znajdziesz-tylko-b-dziesz-s-u-y-panom
